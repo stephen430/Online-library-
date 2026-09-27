@@ -41,7 +41,7 @@ his goal is to combine his background in Nursing, Information Science, and techn
 
 🇰🇪 Kenya | 🩺 Nursing | 📚 Information Science | 🤖 AI | 💻 Technology
 
-He started school at geteni primary school up to class 8 he was born in 1998
+He started school at geteni primary school up to class 8 he was born in 21 march 1998
 he is a second born in a family of 4.
 while his education journey was met with challenges he faced them and went on to top In his primary school with 385 marks.
 he joined the nearby secondary school kebirichi where he didn't pass he repeated In mongoni secondary and passed well where he scored A minus . he joined jkuat In 2016 in 2020 he graduated from jkuat with a second class upper division nursing degree he went on and obtained a master's degree in 2023 in the university of Nairobi. he returned to class again in 2023 to pursue information science course. where he is hoping to graduate in later dates.
