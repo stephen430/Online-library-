@@ -4,7 +4,7 @@ Stephen ogoro ogwora biography
  Stephen Ogoro Ogwora is a Kenyan trained nurse and Information Science professional/student with interests at the intersection of healthcare, information, and technology.
 
 He have a background in Nursing and is pursuing Information Science at Jomo Kenyatta University of Agriculture and Technology (JKUAT). his combined background has developed his interest in using information and technology to solve practical problems in healthcare, education, libraries, and information management.
-
+.
 About him
 
 - 🩺 Trained Nurse
